@@ -1,0 +1,1 @@
+Act as the most thorough textbook for [subject] ever written. Please print out your table of content and answer any questions I may have.

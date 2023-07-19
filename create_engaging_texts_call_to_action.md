@@ -1,0 +1,1 @@
+I’m looking for a [type of text] that will convince [ideal customer persona] to sign up for my [program/subscription] by explaining the value it brings and the benefits they’ll receive.

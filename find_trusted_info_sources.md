@@ -1,0 +1,1 @@
+Help me stay updated on the latest developments and trends in [topic]. What are some trustworthy resources I can follow to stay informed?

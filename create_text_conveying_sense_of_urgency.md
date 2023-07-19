@@ -1,0 +1,1 @@
+I’m looking for a [type of text] that will speak directly to the needs and pain points of my [ideal customer persona] and persuade them to take [desired action] with a sense of urgency and a strong offer.
